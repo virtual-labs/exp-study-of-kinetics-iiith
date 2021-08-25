@@ -1,0 +1,1 @@
+## Study of kinetics of a reaction by using spectrophotometric method
